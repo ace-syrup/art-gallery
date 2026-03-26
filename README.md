@@ -25,3 +25,16 @@ Look, it's me & me.
 Kelenken made by me & me
 
 <img width="540" height="649" alt="Screenshot (358)" src="https://github.com/user-attachments/assets/751178e9-357c-4515-9ba1-7ad5a5da898a" />
+
+ &nbsp;
+
+deer girl
+
+<img width="821" height="866" alt="Screenshot (359)" src="https://github.com/user-attachments/assets/2ddcd8f4-d137-4f2b-afae-ec0f6dbbe070" />
+
+ &nbsp;
+
+Cyan lizor
+
+<img width="937" height="521" alt="Screenshot (360)" src="https://github.com/user-attachments/assets/a6943ed7-ad15-40a6-8099-f69cb631a691" />
+
