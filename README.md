@@ -38,3 +38,10 @@ Cyan lizor
 
 <img width="937" height="521" alt="Screenshot (360)" src="https://github.com/user-attachments/assets/a6943ed7-ad15-40a6-8099-f69cb631a691" />
 
+ &nbsp;
+
+Drawing I made in Math Input Panel
+
+<img width="1220" height="687" alt="Screenshot (361)" src="https://github.com/user-attachments/assets/2e89c2a9-c1c0-4153-85cd-0409e3dd006a" />
+
+
