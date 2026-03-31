@@ -10,12 +10,6 @@ Swirly whale I drew in my second account
 
  &nbsp;
 
-Kelenken, this was a W.I.P
-
-<img width="309" height="446" alt="Screenshot (355)" src="https://github.com/user-attachments/assets/cfc76df8-ce11-4d57-80af-60367df09f73" />
-
- &nbsp;
-
 Look, it's me & me.
 
 <img width="844" height="507" alt="Screenshot (357)" src="https://github.com/user-attachments/assets/d5e026e9-5f85-41da-8647-c1dfbe054ca6" />
@@ -28,7 +22,7 @@ Kelenken made by me & me
 
  &nbsp;
 
-deer girl
+Deer girl
 
 <img width="821" height="866" alt="Screenshot (359)" src="https://github.com/user-attachments/assets/2ddcd8f4-d137-4f2b-afae-ec0f6dbbe070" />
 
@@ -43,5 +37,12 @@ Cyan lizor
 Drawing I made in Math Input Panel
 
 <img width="1220" height="687" alt="Screenshot (361)" src="https://github.com/user-attachments/assets/2e89c2a9-c1c0-4153-85cd-0409e3dd006a" />
+
+ &nbsp;
+
+MOre wbf
+
+<img width="1007" height="590" alt="Screenshot (365)" src="https://github.com/user-attachments/assets/d55badb4-be3d-4901-8b1f-1a26b91ebf2f" />
+
 
 
